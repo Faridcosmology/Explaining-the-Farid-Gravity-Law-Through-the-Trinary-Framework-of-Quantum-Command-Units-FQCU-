@@ -1,0 +1,1 @@
+# Explaining-the-Farid-Gravity-Law-Through-the-Trinary-Framework-of-Quantum-Command-Units-FQCU-
